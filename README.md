@@ -22,4 +22,4 @@
 
 立即访问本站，解锁你的专属看片时光，畅享最热门日本AV精彩内容！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben222222 ）</span>
